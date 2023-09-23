@@ -1,4 +1,4 @@
-<img src="https://i.imgur.com/E6c2SWr.png">
+<img src="https://www.ladn.eu/wp-content/uploads/2019/03/love-death-robot-netflix.jpg?v=202309">
                                                                                                            
 
 <!--
