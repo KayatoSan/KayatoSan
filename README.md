@@ -1,4 +1,4 @@
-<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/9ca6fa82-1a36-4edf-96d8-e9f253cf4d9b/d53gonb-c6e54b98-31cd-45cf-942e-9b8b16329026.png/v1/fill/w_851,h_314,q_80,strp/praise_the_sun_banner_by_mrwallas79_d53gonb-fullview.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9MzE0IiwicGF0aCI6IlwvZlwvOWNhNmZhODItMWEzNi00ZWRmLTk2ZDgtZTlmMjUzY2Y0ZDliXC9kNTNnb25iLWM2ZTU0Yjk4LTMxY2QtNDVjZi05NDJlLTliOGIxNjMyOTAyNi5wbmciLCJ3aWR0aCI6Ijw9ODUxIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmltYWdlLm9wZXJhdGlvbnMiXX0.SHQU6dk_yD6IP9Mprf78Ck36-sYj5R74Ck5CJemkHOw">
+<img src="https://i.imgur.com/E6c2SWr.png">
                                                                                                            
 
 <!--
